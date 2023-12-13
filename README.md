@@ -10,7 +10,3 @@ Assignment #2: https://docs.google.com/presentation/d/1wjvKRyS2gJq2p_bgO6q00ACbN
 Assigment #3: https://docs.google.com/document/d/1AbeFShO1dJUniCujBoIDlD1nj-f__53W/edit
 
 
-Assignment #4a: 
-
-Assigment #4b:
-
